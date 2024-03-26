@@ -1,2 +1,2 @@
 Bismillah 
-ilk değişiklik
+ilk
